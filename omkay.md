@@ -1,1 +1,1 @@
-Omkay!!
+Omkay
